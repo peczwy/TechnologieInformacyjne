@@ -1,0 +1,2 @@
+# TechnologieInformacyjne
+Dla grup PWSZ 
